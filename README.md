@@ -1,0 +1,1 @@
+# solphotos-redirect
